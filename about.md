@@ -13,9 +13,8 @@ If you have a question about him or else, just send a letter to him.
 
 **may u needs ✨**
 
-- <a href="https://github.com/0xistiak" target="_blank" rel="noopener">github</a>
 - <a href="https://x.com/0xistiak" target="_blank" rel="noopener">twitter</a>
+- <a href="https://github.com/0xistiak" target="_blank" rel="noopener">github</a>
 - <a href="https://www.linkedin.com/in/0xistiak" target="_blank" rel="noopener">linkedin</a>
-- <a href="https://t.me/Oxistiak" target="_blank" rel="noopener">telegram</a>
 - <a href="https://www.facebook.com/0xistiak" target="_blank" rel="noopener">facebook</a>
 - <a href="https://www.instagram.com/0xistiak" target="_blank" rel="noopener">instagram</a>
